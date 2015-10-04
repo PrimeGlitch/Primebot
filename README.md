@@ -17,6 +17,4 @@ on the primedice platform.
 
 Bet away and enjoy!
 
-Any problems please feel free to contact us 
-Primediceglitch@gmail.com
 
